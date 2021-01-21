@@ -4,6 +4,6 @@ No matter how
 
 ## FAST
 
-you run, the from keeps on getting closer!!
+you run, the frog keeps on getting closer!!
 
 # **RUN**
