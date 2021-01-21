@@ -2,8 +2,8 @@ but you should have not .... **THE FROG** is coming for you
 
 No matter how
 
-##FAST
+## FAST
 
 you run, the from keeps on getting closer!!
 
-# **RUN*
+# **RUN**
